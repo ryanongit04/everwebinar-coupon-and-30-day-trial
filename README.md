@@ -109,9 +109,9 @@ It’s ideal for entrepreneurs, marketers, and educators who want to scale their
 
 EverWebinar is the ultimate solution for businesses looking to automate webinars and increase conversions.
 
-With the exclusive **35% discount code** and **$1 trial**, there has never been a better time to start.
+With the exclusive **30% discount code** and **$1 trial**, there has never been a better time to start.
 
-👉 [**Try EverWebinar (35% Off + 30-Day Trial)**](https://try.kartra.com/95e26qrft12w-ksecmt)
+👉 [**Try EverWebinar (30% Off + 30-Day Trial)**](https://try.kartra.com/95e26qrft12w-ksecmt)
 
 
 ## Frequently Asked Questions (FAQs)
@@ -120,7 +120,7 @@ With the exclusive **35% discount code** and **$1 trial**, there has never been 
 No, but you can access a 14-day or 30-day trial for just $1.
 
 **2. Which EverWebinar discount code gives the best deal?**  
-The `EW35OFF` code provides the biggest savings of **35%**.
+The `STARTUP30` code provides the biggest savings of **30%**.
 
 **3. Can I cancel my EverWebinar trial without being charged?**  
 Yes, you can cancel anytime before the trial period ends to avoid additional charges.
